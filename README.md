@@ -1,1 +1,1 @@
-my projects contatc me to buys websites 
+my projects contact me to buys websites 
